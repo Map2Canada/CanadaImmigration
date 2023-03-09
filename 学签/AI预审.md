@@ -37,6 +37,7 @@ Risk Indicators可能是全局系统里的，也可能只在特定国家地区�
 但是这些都不得而知，甚至也无法追溯。唯一可知的就是加拿大学签可以算是地表最难申请的签证。对比其他发达国家，美国澳洲新西兰英国等等，都未听闻有如此骇人的高拒签率。不过考虑到加拿大留学后移民政策十分友好，所以算是严进宽留吧。
 
 本文信息来源:
+
 https://edufirst.ca/news/canada-is-refusing-more-study-permits/
 
 https://vancouverimmigrationblog.com/riskflag-chinook/
