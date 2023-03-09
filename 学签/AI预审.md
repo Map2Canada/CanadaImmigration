@@ -38,4 +38,5 @@ Risk Indicators可能是全局系统里的，也可能只在特定国家地区�
 
 本文信息来源:
 https://edufirst.ca/news/canada-is-refusing-more-study-permits/
+
 https://vancouverimmigrationblog.com/riskflag-chinook/
